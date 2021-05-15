@@ -2,4 +2,4 @@
 - 👀 I’m interested in web, desktop and game development
 - 🌱 I’m currently learning c#, html, css, php.
 - 💞️ I’m looking to collaborate on any project to help and learn.
-- 📫 How to reach me: facebook.com/Oscar.Carita.9, occohaila@gmail.com
+- 📫 How to reach me: facebook.com/oscar.carita.63, occohaila@gmail.com
